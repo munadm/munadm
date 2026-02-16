@@ -1,6 +1,6 @@
 # Hi, I'm Munad 👋
 
-**Engineering Manager | Payments & Fintech | 15+ years in software**
+**Engineering Manager | Payments & Fintech | 10+ years in software**
 
 ## About Me
 
